@@ -3,4 +3,4 @@
 * Photography
 * Longboarding for four months
 * Nature
-* watashi wa nihongo o hanashimasu (I speak a little japanese)
+* watashi wa nihongo o chotto hanashimasu (I speak a little japanese)
