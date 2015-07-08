@@ -7,4 +7,3 @@
 * Born on Elm Street (Yes I've meet Freddy Kruger)
 * Creates manga....sometimes... (mostly yaoi and yuri)
 * Seen Nightmare On Elm Street over 66 times
-* I like turtles!!
