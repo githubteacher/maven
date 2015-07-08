@@ -1,5 +1,5 @@
 # Natara Fletcheer
 * Born in Rhode Island
 * Photography
-* Longboarding
+* Longboarding for four months
 * Nature
