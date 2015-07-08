@@ -1,5 +1,5 @@
 ### Laksh
 
-* Born in USA
+* Born in Brooklyn, NY
 * Lived in Guyana
-* Can Cook
+* Can Cook many types of cuisine ranging from Japanese to French to Russian even!
