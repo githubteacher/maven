@@ -2,3 +2,4 @@
 * Loves Music
 * From NJ (Born/Currently in Newark, Raised in Irvington)
 * Went to boarding school in CT
+* I love photography & poetry 
