@@ -13,3 +13,19 @@
 * The Rich Need It
 * If You Eat It You Will Die
 * What Am I?
+
+* //////////////////////////////////
+* I Have Strings
+* To Hold Me Down
+* To Make Me Fret
+* To Make Me Frown
+* I Had Strings
+* But 
+* Now
+* I'm
+* Free
+
+
+
+* There Are
+* No Strings On Me
