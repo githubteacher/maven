@@ -2,4 +2,4 @@
 
 * Anime Watcher
 * Gamer
-http://Kwamelisreallyawesome.com
+http://tinyurl.com/kwamel-is-still-awesome
